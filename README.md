@@ -1,3 +1,3 @@
 konnichi wa!
-kore wa tada renshuyou fairu desu~# shos1st
+kore wa daini no renshuyou fairu desu~# shos1st
 just for practice
